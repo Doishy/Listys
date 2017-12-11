@@ -9,6 +9,7 @@
 // 8 Artifact
 4 Lotus Petal
 4 Lion's Eye Diamond
+1 Chrome Mox
 
 // 3 Creature
 1 Magus of the Will
@@ -22,8 +23,8 @@
 2 Corpse Dance
 1 Chain of Vapor
 
-// 15 Land
-4 Swamp
+// 14 Land
+3 Swamp
 4 Bloodstained Mire
 4 Polluted Delta
 2 Underground Sea
