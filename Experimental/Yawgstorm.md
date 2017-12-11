@@ -31,12 +31,12 @@
 
 // 17 Sorcery
 4 Infernal Tutor
-3 Cabal Therapy
-3 Duress
+1 Cabal Therapy
+3 Thoughtseize
 4 Ponder
 2 Tendrils of Agony
 1 Dark Petition
-
+1 Collective Brutality
 
 
 
