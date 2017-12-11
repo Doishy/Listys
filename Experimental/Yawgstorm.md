@@ -25,7 +25,7 @@
 
 // 14 Land
 3 Swamp
-4 Bloodstained Mire
+4 Verdant Catacomb
 4 Polluted Delta
 2 Underground Sea
 1 Island
@@ -39,6 +39,13 @@
 1 Dark Petition
 1 Collective Brutality
 
-
-
+SB:
+1 Bayou
+1 Tropical Island
+3 Ground Seal
+1 Ad Nauseaum
+3 Nature's Claim
+2 Collective Brutality
+2 Abrupt Decay
+2 Defense Grid
 ```
