@@ -29,10 +29,10 @@
 
 Sideboard:  
 
+1 Ancient Grudge
 1 By Force  
 1 Cabal Therapy  
-2 Carpet of Flowers  
-1 Chromatic Sphere  
+2 Carpet of Flowers   
 1 Doomsday  
 1 Echoing Truth  
 2 Empty the Warrens  
