@@ -49,3 +49,4 @@ SB:
 2 Abrupt Decay
 2 Defense Grid
 ```
+Why not Chains in the SB?
