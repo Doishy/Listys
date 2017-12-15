@@ -3,6 +3,7 @@
 
 ## V.03
 
+```
 2 Island  
 4 Polluted Delta  
 4 Scalding Tarn  
@@ -42,3 +43,4 @@ Sideboard:
 1 Massacre  
 1 Tendrils of Agony  
 1 Tropical Island  
+```
