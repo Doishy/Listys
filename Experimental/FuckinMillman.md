@@ -22,3 +22,4 @@
 * 2x Pyroblast 
 * 1x Hydroblast 
 * Some other stuff
+* 2x Abrade
