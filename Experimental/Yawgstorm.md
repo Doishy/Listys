@@ -100,3 +100,38 @@ SB:
 +5 ?
 1 Tendrils of Agony
 ```
+
+
+## Version 0.3
+
+```
+// Legacy - Magus Cannon
+
+4 Lotus Petal
+4 Lion's Eye Diamond
+1 Chrome Mox
+
+2 Magus of the Mind
+1 Magus of the Will
+
+4 Shallow Grave
+4 Dark Ritual
+2 Cabal Ritual
+4 Entomb
+3 Corpse Dance
+1 Chain of Vapor
+4 Brainstorm
+1 Ad Nauseum
+
+2 Swamp
+4 B or U Fetch, mainly B
+4 Polluted Delta
+3 Underground Sea
+1 Island
+
+4 Infernal Tutor
+1 Cabal Therapy
+3 Thoughtseize
+2 Tendrils of Agony
+2 Collective Brutality
+```
