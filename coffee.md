@@ -14,45 +14,45 @@ https://www.reddit.com/r/MTGLegacy/comments/88mrve/legacy_meatballs_a_master_che
 
 Starting with the old menu the following changes were made:
 
--4 Temperature Thermometers (As I said, people wanted no spoilers on any aspect of their food...including if it was cooked?!)
--4 Brainstorm
--1 Pot of Cold Water (Less Spaghetti so less water needed).
--4 Lots of "Please don't overcook" (Turns out people don't give a shit if you burn their breakfast, heathens!)
--3 Lots of grabbing taste buds by the face. (Aggressive feeding is frowned upon)
--1 Shiny Meatball
--1 Meatball Chef
+-4 Temperature Thermometers (As I said, people wanted no spoilers on any aspect of their food...including if it was cooked?!)  
+-4 Brainstorm  
+-1 Pot of Cold Water (Less Spaghetti so less water needed).  
+-4 Lots of "Please don't overcook" (Turns out people don't give a shit if you burn their breakfast, heathens!)  
+-3 Lots of grabbing taste buds by the face. (Aggressive feeding is frowned upon)  
+-1 Shiny Meatball  
+-1 Meatball Chef  
 
-And these were replaced with:
+And these were replaced with:  
 
-+3 Lots of extra mana sauce. (People like their balls saucy)
-+1 Deep Sea Rock Salt (Adds that nice savoury flavour)
-+1 Meatball Platter (People felt they were getting short changed so we added more meatballs)
-+3 Brainstorm 
-+2 Starving Men (We had to replace the chef and these guys were cheap)
-+2 Books of recipes I stole off someone (again, lack of chef means I need these things yo!)
-+1 Brainstorm
-+3 Coffee Machines (The extra salt made people hella thirsty in initial trials and the Chef keeps mailing us Beans).
-+2 Recipe Safes (To make sure no one steals the recipes back)
++3 Lots of extra mana sauce. (People like their balls saucy)  
++1 Deep Sea Rock Salt (Adds that nice savoury flavour)  
++1 Meatball Platter (People felt they were getting short changed so we added more meatballs)  
++3 Brainstorm   
++2 Starving Men (We had to replace the chef and these guys were cheap)  
++2 Books of recipes I stole off someone (again, lack of chef means I need these things yo!)  
++1 Brainstorm  
++3 Coffee Machines (The extra salt made people hella thirsty in initial trials and the Chef keeps mailing us Beans).  
++2 Recipe Safes (To make sure no one steals the recipes back)  
 
-We also changed the sundries up to work with the seasonal themes:
+We also changed the sundries up to work with the seasonal themes:  
 
--1 Klopsiki
--2 Watercress salads
--2 Char Siu Bao
--1 Distraction from Hunger Pangs
--1 Extra Meatball Platter (Now on the main menu)
--1 Extra Starving Man
--1 Lot of quick thinking (with all the coffee I have been having since the new machines this has seemed moot).
--1 Extra Serving of Spaghetti
--1 Glass of Tropicana
+-1 Klopsiki  
+-2 Watercress salads  
+-2 Char Siu Bao  
+-1 Distraction from Hunger Pangs  
+-1 Extra Meatball Platter (Now on the main menu)  
+-1 Extra Starving Man  
+-1 Lot of quick thinking (with all the coffee I have been having since the new machines this has seemed moot).  
+-1 Extra Serving of Spaghetti  
+-1 Glass of Tropicana  
 
-+1 Lihapyörykät
-+2 Real Organic Certificates
-+2 Dark and Stormy's
-+2 Ability to remove foods people are allergic too (after getting sued twice already)
-+1 GroupOn Voucher
-+2 Quick cook Kofte
-+1 Napkin (To clean up any waste).
++1 Lihapyörykät  
++2 Real Organic Certificates  
++2 Dark and Stormy's  
++2 Ability to remove foods people are allergic too (after getting sued twice already)  
++1 GroupOn Voucher  
++2 Quick cook Kofte  
++1 Napkin (To clean up any waste).  
 
 
 Some people advocated to have even more coffee but the amount of caffeine in my life I felt was getting dangerous
