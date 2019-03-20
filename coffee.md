@@ -12,7 +12,7 @@ a large inspiration from another part of Scandanavia! We also may have had more 
 are now running more of a Bistro type coffee bar. Our previous menu for those who may not have had a chance to sample it:
 https://www.reddit.com/r/MTGLegacy/comments/88mrve/legacy_meatballs_a_master_chefs_perspective/
 
-Starting with the old menu the following changes were made:
+**Starting with the old menu the following changes were made:**
 
 -4 Temperature Thermometers (As I said, people wanted no spoilers on any aspect of their food...including if it was cooked?!)  
 -4 Brainstorm  
@@ -34,7 +34,7 @@ And these were replaced with:
 +3 Coffee Machines (The extra salt made people hella thirsty in initial trials and the Chef keeps mailing us Beans).  
 +2 Recipe Safes (To make sure no one steals the recipes back)  
 
-We also changed the sundries up to work with the seasonal themes:  
+**We also changed the sundries up to work with the seasonal themes:**  
 
 -1 Klopsiki  
 -2 Watercress salads  
@@ -59,6 +59,9 @@ Some people advocated to have even more coffee but the amount of caffeine in my 
 and you can only stomach so much coffee and meatballs. Now I am only marginally shaking as I write this so I think
 another coffee is in order.  We had already trialled the menu and initial response was positive however a number 
 of people expected the Chef to be there and were disappointed with what they had brought when he wasn't.  
+
+
+**The evening's dining!**  
 
 Course 1, Kit - Vanilla Spaghetti  
 Kit loves spaghetti so I was sure I would be able to satiate his food lust however this boy was hella hungry
