@@ -98,7 +98,7 @@ We re-plated looking at what I started with I almost had immediate meatballs. Hi
 we were cooking on gas immediately, meatballs everywhere with no a single drop of coffee in sight. Delightful! 
 
 
-* Due to human rights laws I am not allowed to use infinite coffee and meatball generators to feed the human race because "something,
+*Due to human rights laws I am not allowed to use infinite coffee and meatball generators to feed the human race because "something,
 something, ethical coffee sources".
 
 
