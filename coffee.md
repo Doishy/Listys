@@ -75,7 +75,7 @@ James is a spicy guy who often likes quite well aged meat but today he was tryin
 prepare some meatballs but he politely declined and I had no way to insist. He started the spice train rolling
 and my mouth was very much on fire, I tried to douse the heat with coffee but then just burnt my toungue. 
 As James obviously wasn't a fan of the meatballs I went with some Kofte early and he seemed pretty satisfied with that.
-Finally I tried to feed him Kofte, Meatballs, Coffe, he literally wasn't liking any of it (I need to get my Chef back!) 
+Finally I tried to feed him Kofte, Meatballs, Coffee, he literally wasn't liking any of it (I need to get my Chef back!) 
 and so once agreed we ate Hot Soup and now my mouth hurts.
 
 Course 3, Winter - Beef Stew with Dumplings  
