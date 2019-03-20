@@ -8,7 +8,7 @@ Duncan Hill Coffee jingle
 So it has been awhile! Decided to update this after people got too fed up seeing what was cooking and thus having their food spoiled.
 Unfortunately the Chef took offence to this and started leaving the kitchen in favour of some weird hipster bean emporium.
 Thankfully we have worked out some issues with sourcing ingredients and thus can introduce the new seasonal menu! Now with
-a large inspiration from another part of Scandanavia! We also may have had more than one health and safety FDA violation so
+a large inspiration from another part of Scandinavia! We also may have had more than one health and safety FDA violation so
 are now running more of a Bistro type coffee bar. Our previous menu for those who may not have had a chance to sample it:
 https://www.reddit.com/r/MTGLegacy/comments/88mrve/legacy_meatballs_a_master_chefs_perspective/
 
@@ -76,7 +76,7 @@ hungry. This overabundance of coffee was very much why I decided to not max out 
 Course 2, James - Hot Soup  
 James is a spicy guy who often likes quite well aged meat but today he was trying some hot soup.  I tried to 
 prepare some meatballs but he politely declined and I had no way to insist. He started the spice train rolling
-and my mouth was very much on fire, I tried to douse the heat with coffee but then just burnt my toungue. 
+and my mouth was very much on fire, I tried to douse the heat with coffee but then just burnt my tongue. 
 As James obviously wasn't a fan of the meatballs I went with some Kofte early and he seemed pretty satisfied with that.
 Finally I tried to feed him Kofte, Meatballs, Coffee, he literally wasn't liking any of it (I need to get my Chef back!) 
 and so once agreed we ate Hot Soup and now my mouth hurts.
@@ -92,7 +92,7 @@ table as it would burn! I snuck out a few kofte and whilst she tried to think an
 left filled and content!
 
 Course 4, Alvaro - Thai Red Curry  
-Another spicy one. Alavaro uses the new chilli layers to get a good balance of aggressive heat and extended afterglow to ensure
+Another spicy one. Alvaro uses the new chilli layers to get a good balance of aggressive heat and extended afterglow to ensure
 the dish keeps on giving. I was really impressed with his ability to keep the heat on despite what happened. We sit down, he throws 
 a lot of heat my way. I knew that curry can be quick but he must have pre-made his! Almost full I managed to cool my throat with coffee,
 check my recipe vault and find exactly what ingredient I was missing. He was immediately satisfied with Coffee and Meatballs and had 
