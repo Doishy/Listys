@@ -88,7 +88,7 @@ by Winter's attempt to fix everything red hot however she had got her oven equal
 table as it would burn! I snuck out a few kofte and whilst she tried to think and think and think on what had happened she was
 left filled and content!
 
-Course 4, Alvaro - Thai Red Curry
+Course 4, Alvaro - Thai Red Curry  
 Another spicy one. Alavaro uses the new chilli layers to get a good balance of aggressive heat and extended afterglow to ensure
 the dish keeps on giving. I was really impressed with his ability to keep the heat on despite what happened. We sit down, he throws 
 a lot of heat my way. I knew that curry can be quick but he must have pre-made his! Almost full I managed to cool my throat with coffee,
