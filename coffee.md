@@ -69,9 +69,9 @@ and he had rushed out his spaghetti too fast! I had tried to get mine perfect bu
 he went for the spaghetti, it was all over his sweater, he was losing himself and had one shot that he blew and
 you could hear the painful crunch as he chewed on what he had brought. Anyways we cleaned up the undercooked spaghetti 
 and decided to try again. This time, as he looked shaken, I dropped down some coffee for him as both of us were waiting 
-for ingredients and I just kept finding coffee. I had all my coffee out  and accidentally hit his Spaghetti away so he had 
-no Spaghetti and he had had too much coffee so and so he decided actually he wasn't hungry. This overabunce of coffee was 
-very much why I decided to not max out on the stuff.
+for ingredients and I just kept finding coffee. I had all my coffee out  and accidentally removed Spaghetti away suddenly
+thinking him as gluten-free so he had no Spaghetti and he had had too much coffee so and so he decided actually he wasn't
+hungry. This overabundance of coffee was very much why I decided to not max out on the stuff.
 
 Course 2, James - Hot Soup  
 James is a spicy guy who often likes quite well aged meat but today he was trying some hot soup.  I tried to 
