@@ -98,7 +98,7 @@ a lot of heat my way. I knew that curry can be quick but he must have pre-made h
 check my recipe vault and find exactly what ingredient I was missing. He was immediately satisfied with Coffee and Meatballs and had 
 to be given two lots of Spaghetti before realising just how much food could be brought onto the table (infinite food one might say!*)
 We re-plated looking at what I started with I almost had immediate meatballs. His spicy boi helped show me I had it all ready and 
-we were cooking on gas immediately, meatballs everywhere with no a single drop of coffee in sight. Delightful! 
+we were cooking on gas immediately, meatballs everywhere with not a single drop of coffee in sight. Delightful! 
 
 
 *Due to human rights laws I am not allowed to use infinite coffee and meatball generators to feed the human race because "something,
