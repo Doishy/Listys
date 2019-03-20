@@ -99,7 +99,7 @@ we were cooking on gas immediately, meatballs everywhere with no a single drop o
 
 
 *Due to human rights laws I am not allowed to use infinite coffee and meatball generators to feed the human race because "something,
-something, ethical coffee sources".
+something, ethical, fairtrade, traceable non-non-euclidean coffee sources".
 
 
 So that was the evening of fine dining and over-caffeination. I enjoyed the Finnish Meatballs and finishing people with Meatballs 
